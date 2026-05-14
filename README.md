@@ -30,7 +30,7 @@
 
 ### 🌍 Location
 - 📍 **Iran, Mazandaran, Babol**
-
+- 📍 **Tehran**
 ---
 
 ### 📫 How to reach me:
